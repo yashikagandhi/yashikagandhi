@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @yashikagandhi 
-- 👀 I’m interested in colloborating on projects and building on my technical skills.
+- 👀 I’m interested in collaborating on projects and building on my technical skills.
 - 🌱 I’m currently learning about Blockchain Technology through a learning-intensive program.
 - 📫 How to reach me: linkedin: @yashikagandhi
 
